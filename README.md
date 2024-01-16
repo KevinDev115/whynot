@@ -1,2 +1,1 @@
-# whynot
-whynot?
+# t(ツ)_/¯
